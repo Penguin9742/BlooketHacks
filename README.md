@@ -1,4 +1,5 @@
 # BlooketHacks
+#THIS IS IN PROGRESS DO NOT WORRY, MORE WILL COME
 The best blookets hacks that work very good. Trust me.
 Having these blooket hacks are for purposes to have fun. I have never gotten banned so don't worry. I will update. For Most hacks in global the instructions areb simple. 
 
